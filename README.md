@@ -19,12 +19,12 @@ E para não ficar só na teoria, no meu mestrado em Saúde Coletiva, estou anali
 *   **Habilidades Especiais:** Análise Estatística, Visualização de Dados (em constante evolução!)
 *   **Outros Talentos:** Metodologias Ágeis, Epidemiologia, Bioestatística (para entender o mundo com um olhar curioso)
 
-### Vamos nos Conectar! (aka, A Festa dos Dados)
+### Vamos nos Conectar!
 
 Se você também é um entusiasta de dados, vamos nos conectar! Adoro trocar ideias, aprender coisas novas e construir projetos juntos.
 
 *   **LinkedIn:** https://www.linkedin.com/in/luizaosts/
-*   **E-mail:** luizaos.enf@gmail.com (mande um oi, adoro uma boa conversa!)
+*   **E-mail:** luiza.osantos@outlook.com (mande um oi, adoro uma boa conversa!)
 
 ### PS:
 
