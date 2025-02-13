@@ -24,7 +24,7 @@ E para não ficar só na teoria, no meu mestrado em Saúde Coletiva, estou anali
 Se você também é um entusiasta de dados, vamos nos conectar! Adoro trocar ideias, aprender coisas novas e construir projetos juntos.
 
 *   **LinkedIn:** https://www.linkedin.com/in/luizaosts/
-*   **E-mail:** luiza.osantos@outlook.com (mande um oi, adoro uma boa conversa!)
+*   **E-mail:** luizaosts2@gmail.com (mande um oi, adoro uma boa conversa!)
 
 ### PS:
 
